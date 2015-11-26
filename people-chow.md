@@ -13,7 +13,7 @@ A play on "Puppy Chow", this treat is also known as **Muddy Buddies**.
 
 ## Directions
 
-Microwave margin, chocolate chips and peanut butter for **1 minute**. Stir, then microwave for **30 seconds**.
+Microwave margarine, chocolate chips and peanut butter for **1 minute**. Stir, then microwave for **30 seconds**.
 
 Stir until smooth. Add vanilla. Pour over Crispix cereal and stir until coated.
 
