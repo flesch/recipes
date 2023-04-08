@@ -4,12 +4,12 @@ A play on "Puppy Chow", this treat is also known as **Muddy Buddies**.
 
 ## Ingredients
 
-* **2 ⅔ cup**: Margarine
-* **1 ⅓ cup**: Chocolate Chips
-* **1 cup**: Peanut Butter
-* **1 tsp**: Vanilla
-* **12oz**: Crispix cereal (whole box)
-* **3 cups**: Powdered Sugar
+* **4 tbsp**: Margarine
+* **2 cup**: Chocolate Chips
+* **1 ½ cup**: Peanut Butter
+* **1 ½ tsp**: Vanilla
+* **18oz**: Crispix cereal (whole box)
+* **~5 cups**: Powdered Sugar
 
 ## Directions
 
